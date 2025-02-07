@@ -1,2 +1,1 @@
-# mani
-Mani's Profile
+# Mani's Profile
